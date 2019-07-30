@@ -12,5 +12,5 @@
 如果群加满或者扫码进不去的时候，可以加我微信，我手动拉进去
 **微信号：nanyangbeipiao**
 
-![天猫2020届内推群二维码](https://github.com/lyflipped/tmall-2020-recommend/blob/master/%E7%B4%A0%E6%9D%90/%E5%86%85%E6%8E%A8%E7%BE%A4%E4%BA%8C%E7%BB%B4%E7%A0%81.png?raw=true)
+![天猫2020届内推群二维码](https://github.com/lyflipped/tmall-2020-recommend/blob/master/%E7%B4%A0%E6%9D%90/2%E7%BE%A4%E4%BA%8C%E7%BB%B4%E7%A0%81.png?raw=true)
 
